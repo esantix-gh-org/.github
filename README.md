@@ -1,1 +1,0 @@
-# Esantix Github Organization
